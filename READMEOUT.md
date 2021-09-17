@@ -7,3 +7,6 @@ lskdfjsdöl
 flskdjfsö
 lsdkjfsdköl
 
+today is the day before weekend
+the next two days are weekend
+sth new would happen today
